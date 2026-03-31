@@ -1,2 +1,0 @@
-# paosundesignstudio
-design studio
